@@ -1,4 +1,4 @@
-## Hi there 👋
+## Ella Mae Cunanan 👋
 
 <!--
 **ellaaamae/ellaaamae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
